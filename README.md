@@ -1,3 +1,2 @@
 # mir2026507_TiendaJuegos
-Esto repo 
-esta apruebaaaaaaaaaaaaaaaaaaaa
+El andres es una fuxia 
